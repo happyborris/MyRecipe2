@@ -40,3 +40,9 @@
 
 ![이미지1-1](https://recipe1.ezmember.co.kr/cache/recipe/2019/01/04/7adc229ac4fb344680fa9853c3648b321.jpg)
 
+
+## 2단계
+팬에 식용유 3큰술과 송송 썬 파를 넣은 후 불을 올려 볶아요.
+파기름이 충분히 나오게, 노르스름해질 때까지 볶습니다.
+
+![이미지2-1](https://recipe1.ezmember.co.kr/cache/recipe/2019/01/04/c4605fc7eb7089380dfada6c9e59a56e1.jpg)
